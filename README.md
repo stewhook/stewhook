@@ -1,4 +1,4 @@
-Student, Founder, Engineer
+New Grad, Founder, Engineer
 
 Former Roblox Multimillionaire
 
