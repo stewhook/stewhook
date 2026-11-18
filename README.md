@@ -1,5 +1,3 @@
-New Grad, Founder, Engineer
+Manhattan
 
-Former Roblox Multimillionaire
-
-Python, Luau, Rust, TS/JS
+Former Robux multimillionaire
